@@ -1,2 +1,2 @@
 # TEACHER-BOOK-MG
-Hello Aptoide team, I am Edelin Manni-Tan, the creator and developer of Teacher Book MG for primary school teachers in Madagascar. I am requesting ownership of this application to publish official updates and support users directly.
+Bonjour, je suis Edelin Manni-Tan, créateur et développeur de Teacher Book MG, une application destinée aux enseignants du primaire à Madagascar. Je souhaite obtenir la propriété de cette application afin de publier les mises à jour officielles et d'assurer un support direct aux utilisateurs.
